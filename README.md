@@ -8,7 +8,7 @@
   <br>
   
   fluffy silly programmer and stuffs <br>
-  I love creating things!
+  I love creating things! >⩊<
   
   <br>
   
@@ -16,8 +16,8 @@
   
   <br>
   
-  big computing/logic/math/physics nerd ₍^. .^₎Ⳋ <br>
-  love playing guilty gear and animal crossing >⩊< <br>
+  big computing/logic/math/physics nerd <br>
+  love playing guilty gear and animal crossing <br>
   foxes and fluffy things are my lifeblood (˶>⩊<˶)
   
   <br>
@@ -36,6 +36,6 @@
   
   <br>
   
-  feel free to add me on Discord! @silly_lunah
+  feel free to add me on Discord! @silly_lunah ₍^. .^₎Ⳋ 
   
 </div>
