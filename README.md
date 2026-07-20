@@ -29,16 +29,6 @@
   I like Linux, preferrably of the Arch flavour <br>
   preferred languages are: C++, C and C# <br>
   strong passion for optimizing things
-    
-  <br>
-  
-  ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-  
-  <br>
-
-  currently trying to learn more math and theoretical computer science <br>
-  MSc student of Computer Science at UALG <br>
-  knowledge should be free!
   
   <br>
   
